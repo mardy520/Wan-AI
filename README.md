@@ -18,3 +18,4 @@ Use Wan AI, the free, ultimate, all-in-one AI image &amp; video generator, to cr
 The following are the related projects we are working on. If you're interested, you can take a look: 
  <h2>https://onee.page/mardy</h2>
  <h2>https://bio.site/mardy520</h2>
+ <h2>https://linktr.ee/madry520</h2>
